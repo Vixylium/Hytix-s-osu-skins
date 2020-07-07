@@ -1,6 +1,6 @@
 # Hytix's osu! skins
 # Click the skin's name to download it!
-# Shoutout to [Dust](https://twitter.com/Dust_btw)
+# Shoutout to [Vixylium](https://osu.ppy.sh/users/12155780) [Dust](https://twitter.com/Dust_btw)
 # [JesusOmega Planets](https://drive.google.com/file/d/1UTTcNwhIxzIJbnGQRzhKlw7PCzBh_eDy/view)
 ![](https://camo.githubusercontent.com/a60802bb604626e016fae397f18551f66799076e/68747470733a2f2f617263686976652e62746d632e6c6976652f696d616765732f706c616e6574732d67616d652e706e67)
 
