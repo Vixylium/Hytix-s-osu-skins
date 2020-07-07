@@ -14,3 +14,4 @@
 ![](https://osu.ppy.sh/ss/15188334/34ab)
 
 # [- Dust粉](https://drive.google.com/file/d/1pbIbHjFMbJQhBS-xowM2TziMtsmNVueo/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/729804459315822613/730126673659559986/screenshot236.jpg)
