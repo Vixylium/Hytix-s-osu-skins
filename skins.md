@@ -4,6 +4,8 @@ u cute owo
 # Click the skin's name to download it!
 # Shoutout to [Vixylium](https://osu.ppy.sh/users/12155780) and [Dust](https://twitter.com/Dust_btw)
 
+# [osu](https://shigeskinss.s-ul.eu/csrv6H29)
+![](https://camo.githubusercontent.com/469749ae2e3e80defcc4fe99c89f592156bc4f4a/68747470733a2f2f692e696d6775722e636f6d2f524245776470712e706e67)
 # [Varv Skin idk??](https://skins.osuck.net/index.php?newsid=1194)
 ![](https://vixylium.s-ul.eu/uoFxjdWY)
 # [Seoul Shinobu Edit](https://skins.osuck.net/index.php?newsid=374)
