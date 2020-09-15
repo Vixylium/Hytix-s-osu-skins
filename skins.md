@@ -5,7 +5,7 @@ u cute owo
 # Shoutout to [Vixylium](https://osu.ppy.sh/users/12155780) and [Dust](https://twitter.com/Dust_btw)
 
 # [Abibsal but haitigz](https://drive.google.com/file/d/1ZqJ9_e28hMBGkRrcYGFdoJDfOE46DxFC/view?usp=sharing)
-![](https://imgur.com/Mw61jEm)
+![](https://osu.ppy.sh/ss/15551052/941f)
 
 # [Shige skin small cursortrail](https://shigeskinss.s-ul.eu/csrv6H29)
 ![](https://camo.githubusercontent.com/469749ae2e3e80defcc4fe99c89f592156bc4f4a/68747470733a2f2f692e696d6775722e636f6d2f524245776470712e706e67)
