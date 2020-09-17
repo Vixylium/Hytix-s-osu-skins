@@ -4,6 +4,9 @@ u cute owo
 # Click the skin's name to download it!
 # Shoutout to [Vixylium](https://osu.ppy.sh/users/12155780) and [Dust](https://twitter.com/Dust_btw)
 
+# [i hate this skin MANNNN](https://www.mediafire.com/file/fmmuq6020lb8sda/Aristia%28Edit%29+trail.osk/file)
+![](https://skins.osuck.net/uploads/posts/2019-07/1561975230_screenshot5519.jpg)
+
 # [Abibsal but haitigz](https://drive.google.com/file/d/1ZqJ9_e28hMBGkRrcYGFdoJDfOE46DxFC/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15551052/941f)
 
