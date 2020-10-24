@@ -4,8 +4,8 @@ u cute owo
 # Click the skin's name to download it!
 # Shoutout to [Vixylium](https://osu.ppy.sh/users/12155780) and [Dust](https://twitter.com/Dust_btw)
 
-# [Maaadbot](https://drive.google.com/uc?id=1F-gOHhM9kYpLcCI9auNMbauYHTQWMPrv&export=download)
-![](https://osu.ppy.sh/ss/15559957/8746)
+# [aaRem](https://drive.google.com/file/d/1hCdLzCqbdNZFyK3ZV-4ixiYV4qj6RQ6u/view?usp=sharing)
+![](https://osu.ppy.sh/ss/15718604/0a09)
 
 # [Aristia edit](https://www.mediafire.com/file/fmmuq6020lb8sda/Aristia%28Edit%29+trail.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-07/1561975230_screenshot5519.jpg)
@@ -22,11 +22,11 @@ u cute owo
 # [Seoul Shinobu Edit](https://skins.osuck.net/index.php?newsid=374)
 ![](https://vixylium.s-ul.eu/49z5Mfq5)
 
+# [Maaadbot](https://drive.google.com/uc?id=1F-gOHhM9kYpLcCI9auNMbauYHTQWMPrv&export=download)
+![](https://osu.ppy.sh/ss/15559957/8746)
+
 # [- Dust粉](https://drive.google.com/file/d/1pbIbHjFMbJQhBS-xowM2TziMtsmNVueo/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/729804459315822613/730126673659559986/screenshot236.jpg)
-
-# [JesusOmega Planets](https://drive.google.com/file/d/1UTTcNwhIxzIJbnGQRzhKlw7PCzBh_eDy/view)
-![](https://camo.githubusercontent.com/a60802bb604626e016fae397f18551f66799076e/68747470733a2f2f617263686976652e62746d632e6c6976652f696d616765732f706c616e6574732d67616d652e706e67)
 
 # [Komori Pengulian](https://drive.google.com/file/d/12CERChzWeJhmcZrWmJ1TatE5M1XHsXY-/view)
 ![](https://skins.osuck.net/uploads/posts/2019-08/1565775659_screenshot6287.jpg)
