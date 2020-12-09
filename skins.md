@@ -34,4 +34,4 @@ u cute owo
 # [RafisXVarvalian black sliders](https://drive.google.com/file/d/1gN_zBhlaXQIFBuOYval-dunJ5aLd1VrS/view)
 ![](https://osu.ppy.sh/ss/15188337/ce54)
 
-
+# If u scrolled all the way down here and still can't find the skin. Feel free to ask me
