@@ -4,6 +4,9 @@ u cute owo
 # Click the skin's name to download it!
 # Shoutout to [Vixylium](https://osu.ppy.sh/users/12155780) and [Dust](https://twitter.com/Dust_btw)
 
+# [WC!!](https://www.mediafire.com/folder/3vnwgwe8vcsrv/WhiteCat)
+![](https://vixylium.s-ul.eu/wD8oNAMk)
+
 # [aaRem](https://drive.google.com/file/d/1hCdLzCqbdNZFyK3ZV-4ixiYV4qj6RQ6u/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15718604/0a09)
 
