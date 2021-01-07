@@ -4,6 +4,9 @@ u cute owo
 # Click the skin's name to download it!
 # Shoutout to [Vixylium](https://osu.ppy.sh/users/12155780) and [Dust](https://twitter.com/Dust_btw)
 
+# [-+Aesthetic 1.3.13+Solo [Tangerine]](https://drive.google.com/file/d/1qyxHU-cNYnb1piM8i2nUNaEHDqZ5yxFS/view?usp=sharing)
+![](https://media.discordapp.net/attachments/759496175329214474/796844088123981834/unknown.png?width=1202&height=676)
+
 # [-+Aesthetic 1.3.13+Solo [Hytix Edit]](https://drive.google.com/file/d/1_06aF-1mCJCiBKh-38Ud8hxHJ832Ddqk/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15914391/3a91)
 
@@ -19,8 +22,6 @@ u cute owo
 # [Abyssal edit](https://drive.google.com/file/d/1ZqJ9_e28hMBGkRrcYGFdoJDfOE46DxFC/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15551052/941f)
 
-# [Varv Skin](https://skins.osuck.net/index.php?newsid=1194)
-![](https://vixylium.s-ul.eu/uoFxjdWY)
 
 # [Seoul Shinobu Edit](https://skins.osuck.net/index.php?newsid=374)
 ![](https://vixylium.s-ul.eu/49z5Mfq5)
