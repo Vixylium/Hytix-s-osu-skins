@@ -4,7 +4,7 @@ u cute owo
 # Click the skin's name to download it!
 # Shoutout to [Vixylium](https://osu.ppy.sh/users/12155780) and [Dust](https://twitter.com/Dust_btw)
 
-# [-+Aesthetic 1.3.13+Solo [Tangerine]](https://drive.google.com/file/d/1qyxHU-cNYnb1piM8i2nUNaEHDqZ5yxFS/view?usp=sharing)
+# [Tangerine](https://drive.google.com/file/d/1qyxHU-cNYnb1piM8i2nUNaEHDqZ5yxFS/view?usp=sharing)
 ![](https://media.discordapp.net/attachments/759496175329214474/796844088123981834/unknown.png?width=1202&height=676)
 
 # [-+Aesthetic 1.3.13+Solo [Hytix Edit]](https://drive.google.com/file/d/1_06aF-1mCJCiBKh-38Ud8hxHJ832Ddqk/view?usp=sharing)
