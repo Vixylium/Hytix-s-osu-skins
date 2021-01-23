@@ -1,4 +1,4 @@
-u cute owo
+
 # Hytix osu!skins
 
 # Click the skin's name to download it!
