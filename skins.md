@@ -7,7 +7,7 @@
 # [aaRem](https://drive.google.com/file/d/1hCdLzCqbdNZFyK3ZV-4ixiYV4qj6RQ6u/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15718604/0a09)
 
-# [Edichii FBK w/Syndi hitcircles/colors](https://drive.google.com/file/d/17dIywaiivby1FI-2DeF3xg6Ejq8NwvGY/view?usp=sharing)
+# [Edichii FBK with Syndi hitcircles/colors](https://drive.google.com/file/d/17dIywaiivby1FI-2DeF3xg6Ejq8NwvGY/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/16115914/6298)
 
 # [Tangerine](https://drive.google.com/file/d/1qyxHU-cNYnb1piM8i2nUNaEHDqZ5yxFS/view?usp=sharing)
