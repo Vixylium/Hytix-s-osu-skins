@@ -2,7 +2,10 @@
 # Hytix osu!skins
 
 # Click the skin's name to download it!
-# Shoutout to [Vixylium](https://osu.ppy.sh/users/12155780) and [Dust](https://twitter.com/Dust_btw)
+# Special thanks to: [Vixylium](https://osu.ppy.sh/users/12155780) and [Dust](https://twitter.com/Dust_btw) [EdiChii](https://osu.ppy.sh/users/14571048) [Maaadbot](https://osu.ppy.sh/users/8508753) for helping me set this up!
+
+# [aaRem](https://drive.google.com/file/d/1hCdLzCqbdNZFyK3ZV-4ixiYV4qj6RQ6u/view?usp=sharing)
+![](https://osu.ppy.sh/ss/15718604/0a09)
 
 # [Tangerine](https://drive.google.com/file/d/1qyxHU-cNYnb1piM8i2nUNaEHDqZ5yxFS/view?usp=sharing)
 ![](https://media.discordapp.net/attachments/759496175329214474/796844088123981834/unknown.png?width=1202&height=676)
@@ -13,15 +16,12 @@
 # [WC!!](https://www.mediafire.com/folder/3vnwgwe8vcsrv/WhiteCat)
 ![](https://vixylium.s-ul.eu/wD8oNAMk)
 
-# [aaRem](https://drive.google.com/file/d/1hCdLzCqbdNZFyK3ZV-4ixiYV4qj6RQ6u/view?usp=sharing)
-![](https://osu.ppy.sh/ss/15718604/0a09)
 
 # [Aristia edit](https://www.mediafire.com/file/fmmuq6020lb8sda/Aristia%28Edit%29+trail.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-07/1561975230_screenshot5519.jpg)
 
 # [Abyssal edit](https://drive.google.com/file/d/1ZqJ9_e28hMBGkRrcYGFdoJDfOE46DxFC/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15551052/941f)
-
 
 # [Seoul Shinobu Edit](https://skins.osuck.net/index.php?newsid=374)
 ![](https://vixylium.s-ul.eu/49z5Mfq5)
