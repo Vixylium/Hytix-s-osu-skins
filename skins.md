@@ -7,6 +7,9 @@
 # [aaRem](https://drive.google.com/file/d/1hCdLzCqbdNZFyK3ZV-4ixiYV4qj6RQ6u/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15718604/0a09)
 
+# [Edichii FBK w/Syndi hitcircles/colors](https://drive.google.com/file/d/17dIywaiivby1FI-2DeF3xg6Ejq8NwvGY/view?usp=sharing)
+![](https://osu.ppy.sh/ss/16115914/6298)
+
 # [Tangerine](https://drive.google.com/file/d/1qyxHU-cNYnb1piM8i2nUNaEHDqZ5yxFS/view?usp=sharing)
 ![](https://media.discordapp.net/attachments/759496175329214474/796844088123981834/unknown.png?width=1202&height=676)
 
@@ -15,7 +18,6 @@
 
 # [WC!!](https://www.mediafire.com/folder/3vnwgwe8vcsrv/WhiteCat)
 ![](https://vixylium.s-ul.eu/wD8oNAMk)
-
 
 # [Aristia edit](https://www.mediafire.com/file/fmmuq6020lb8sda/Aristia%28Edit%29+trail.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-07/1561975230_screenshot5519.jpg)
