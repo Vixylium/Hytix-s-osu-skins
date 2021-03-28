@@ -2,7 +2,7 @@
 # Hytix osu!skins
 
 # Click the skin's name to download it!
-# Special thanks to: [Vixylium](https://osu.ppy.sh/users/12155780), [Dust](https://twitter.com/Dust_btw), [EdiChii](https://osu.ppy.sh/users/14571048)and [Maaadbot](https://osu.ppy.sh/users/8508753) for sharing the skins!
+# Special thanks to: [Vixylium](https://osu.ppy.sh/users/12155780), [Dust](https://twitter.com/Dust_btw), [EdiChii](https://osu.ppy.sh/users/14571048) and [Maaadbot](https://osu.ppy.sh/users/8508753) for sharing the skins!
 
 # [aaRem](https://drive.google.com/file/d/1hCdLzCqbdNZFyK3ZV-4ixiYV4qj6RQ6u/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15718604/0a09)
