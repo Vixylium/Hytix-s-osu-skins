@@ -10,13 +10,10 @@
 # [Edichii FBK with Syndi hitcircles/colors](https://drive.google.com/file/d/17dIywaiivby1FI-2DeF3xg6Ejq8NwvGY/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/16115914/6298)
 
-# [Tangerine](https://drive.google.com/file/d/1qyxHU-cNYnb1piM8i2nUNaEHDqZ5yxFS/view?usp=sharing)
-![](https://media.discordapp.net/attachments/759496175329214474/796844088123981834/unknown.png?width=1202&height=676)
-
 # [-+Aesthetic 1.3.13+Solo [Hytix Edit]](https://drive.google.com/file/d/1_06aF-1mCJCiBKh-38Ud8hxHJ832Ddqk/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15914391/3a91)
 
-# [WC!!](https://www.mediafire.com/folder/3vnwgwe8vcsrv/WhiteCat)
+# [WhiteCat](https://www.mediafire.com/folder/3vnwgwe8vcsrv/WhiteCat)
 ![](https://vixylium.s-ul.eu/wD8oNAMk)
 
 # [Aristia edit](https://www.mediafire.com/file/fmmuq6020lb8sda/Aristia%28Edit%29+trail.osk/file)
