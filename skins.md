@@ -7,6 +7,9 @@
 # [aaRem](https://drive.google.com/file/d/1hCdLzCqbdNZFyK3ZV-4ixiYV4qj6RQ6u/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15718604/0a09)
 
+# [BubbleVarv](https://drive.google.com/file/d/1bMfFy4utJ5YgskD5T_rlqE-mzbtxmcWC/view?usp=sharing)
+![](https://osu.ppy.sh/ss/15718604/0a09)
+
 # [Edichii FBK with Syndi hitcircles/colors](https://drive.google.com/file/d/17dIywaiivby1FI-2DeF3xg6Ejq8NwvGY/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/16115914/6298)
 
