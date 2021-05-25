@@ -8,7 +8,7 @@
 ![](https://osu.ppy.sh/ss/15718604/0a09)
 
 # [BubbleVarv](https://drive.google.com/file/d/1bMfFy4utJ5YgskD5T_rlqE-mzbtxmcWC/view?usp=sharing)
-![](https://osu.ppy.sh/ss/15718604/0a09)
+![](https://osu.ppy.sh/ss/16636328/130d)
 
 # [Edichii FBK with Syndi hitcircles/colors](https://drive.google.com/file/d/17dIywaiivby1FI-2DeF3xg6Ejq8NwvGY/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/16115914/6298)
