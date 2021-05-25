@@ -10,6 +10,9 @@
 # [BubbleVarv](https://drive.google.com/file/d/1bMfFy4utJ5YgskD5T_rlqE-mzbtxmcWC/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/16636328/130d)
 
+# [- #NinoSupremacy [HY]](https://drive.google.com/file/d/1qyTxWQnPCbsSFFlQWIf3qmd-RfPquyyq/view?usp=sharing)
+![](https://osu.ppy.sh/ss/16636334/cd95)
+
 # [Edichii FBK with Syndi hitcircles/colors](https://drive.google.com/file/d/17dIywaiivby1FI-2DeF3xg6Ejq8NwvGY/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/16115914/6298)
 
