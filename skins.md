@@ -4,6 +4,9 @@
 # Click the skin's name to download it!
 # Special thanks to [Vixylium](https://osu.ppy.sh/users/12155780) for helping me set this up, also thanks [Dust](https://twitter.com/Dust_btw), [EdiChii](https://osu.ppy.sh/users/14571048) and [Maaadbot](https://osu.ppy.sh/users/8508753) for sharing the skins!
 
+# [⌞Freedom Dive x Suisei  ↓⌝](https://drive.google.com/file/d/1pl4rH2uN4-3Rdb1GRcbiolrCCOZWLFDY/view?usp=sharing)
+![](https://osu.ppy.sh/ss/17071287/c027)
+
 # [aaRem](https://drive.google.com/file/d/1hCdLzCqbdNZFyK3ZV-4ixiYV4qj6RQ6u/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15718604/0a09)
 
